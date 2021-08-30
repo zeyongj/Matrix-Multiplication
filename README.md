@@ -48,4 +48,4 @@ online at: http://www.sfu.ca/policies/gazette/student/s10-01.html.
 
 Zeyong, JIN
 
-April 20, 2020
+December 20, 2019
